@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **rohansai987@gmail.com**
 
-- 📄 Know about my experiences [resume](https://tinyurl.com/sairamportfolioresume12)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/18wiy1Aq95egpKu5epSqdnmff2WzWsgpm/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
